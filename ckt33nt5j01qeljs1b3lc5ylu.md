@@ -1,4 +1,4 @@
-## Guide to stand out as a Front-end Web developer seeking their f
+## Guide to stand out as a Front-end Web developer seeking their first job!
 
 Hey there! Are you feeling stuck in the crowd? Then I've gotta way out! 🚀
 
